@@ -7,4 +7,7 @@
 <br>
 <img width="373" height="256" alt="IMG_2865" src="https://files.catbox.moe/mprtex.png" />
 <br>
+
+i love livekill ok? ok
+<br> art by 0bvbv
 </br> ![](https://komarev.com/ghpvc/?username=devesquots&color=63cfb5&style=flat-square&label=killbots)  <img width="40" height="40" src="https://files.catbox.moe/pitnyq.webp">
