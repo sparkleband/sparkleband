@@ -9,12 +9,12 @@
 [atabook](https://devesquots.atabook.org/) . [strawpage](https://hjd666.straw.page/) . [rentry](https://rentry.co/devestoss)
 
 i love livekill ok? ok art by 0bvbv
-<br>  <sub> c+h always even with friends, cuddle comf !! ⠀⠀</sub>
+<br><sub> c+h always even with friends, cuddle comf !! ⠀⠀</sub>
 
 <details>
 
 
-<summary> ⠀other stuff⠀⠀⠀.⠀⠀   </summary>
+<summary> ⠀  extra⠀   </summary>
 
 <img width="213" height="52" alt="image" src="https://files.catbox.moe/iefgvw.png" /> 
 
