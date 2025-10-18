@@ -21,7 +21,7 @@ i love livekill ok? ok art by 0bvbv
  im offtab most of the times, so w2i
 <br> ALWAYS unless its a friend or ontab
 <br> if im sitting alone, then you're free to c+h without asking
-<br> for friends/nonoomfs you can come sit even with other buddies!
+<br> for nonoomfs please ask before sitting if w/friends
 <br> hi i like dod and hjd a lots pls int if u like those two
 
 </details>
