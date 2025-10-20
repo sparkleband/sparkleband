@@ -6,7 +6,7 @@
 <img width="373" height="256" alt="IMG_2865" src="https://files.catbox.moe/mprtex.png" />
 <br>
 
-[atabook](https://devesquots.atabook.org/) . [strawpage](https://devesfuls.straw.page/) . [rentry](https://rentry.co/devestoss)
+[atabook](https://devesquots.atabook.org/) . [strawpage](https://devesfuls.straw.page/) . [rentry](https://rentry.co/artistrys)
 
 i love livekill ok? ok art by 0bvbv
 <br><sub> c+h always even with friends, cuddle comf !! ⠀⠀</sub>
